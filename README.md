@@ -45,4 +45,4 @@ Atualmente, busco minha primeira oportunidade como Desenvolvedor Júnior ou Esta
 
 - **Email:** [pedrinho145nick@gmail.com](mailto:pedrinho145nick@gmail.com)
 - **Instagram:** [@simiao._](https://www.instagram.com/simiao._)
-- **WhatsApp:** [+55 11 96380-8161://wa.me/5511963808161)
+- **WhatsApp:** [+55 11 96380-8161](https://wa.me/5511963808161)
